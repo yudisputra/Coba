@@ -1,1 +1,1 @@
-Saya Yudistira Eka Putra Kelas TI-2H
+Saya Eka Putra Kelas TI-2H
